@@ -1,1 +1,1 @@
-![alt text](Khushi Yadav.pdf)
+![alttext](Khushi Yadav.pdf)
